@@ -1,0 +1,1 @@
+# Kryt-na-enkoder--insk-ho-motoru
